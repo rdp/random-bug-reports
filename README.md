@@ -1,2 +1,2 @@
 # random-bug-reports
-see issues
+see issues for list of inventions/business ideas
